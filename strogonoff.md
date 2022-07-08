@@ -1,0 +1,1 @@
+# Strogonoff de Frango### Ingredientes - arroz - frango - temperos - milho - ervilha### Modo de preparo 1. Em uma panela
